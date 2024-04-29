@@ -1,5 +1,6 @@
 # dream_world
-https://github.com/wsxqead/dream_world/assets/75234399/f2f8579d-ae36-42ec-b3be-117e2f0b471a
+![1714328471219](https://github.com/wsxqead/dream_world/assets/75234399/795c94a7-301d-4dc6-b7fa-3265355ed3fb)
+
 
 ## 작업 완료
 
